@@ -1,6 +1,6 @@
-# [🍁​] eryliX_ [🍁​]
+# [🍁​] EryliX_ [🍁​]
 
-**[🍁] IT learner [DevOps | Backend | LowLevel | Cybersecurity]**
+**[🍁] IT learner [DevOps | Backend | LowLevel ]**
 
 ---
 
